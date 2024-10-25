@@ -1,4 +1,4 @@
-Hi, I’m @Sahil-2006 also known as Sahil Haryani
+Hi, I’m @Sahil-2006 also known as Sahil Shabbirali Haryani
 I’m interested in coding and open siource contribution 
 I am proficient in HTML and CSS
 my linkdin acoount https://www.linkedin.com/in/sahil-haryani-109166281/
